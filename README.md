@@ -1,5 +1,6 @@
-# Coding
-Hello
+# Personal repository
+Private files
 
 # BJJ
-BJJ Love 🥋
+White belt 🤍
+First competition - AJP Turkey 8 October
