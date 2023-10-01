@@ -3,4 +3,4 @@ Private files
 
 # BJJ
 White belt 🤍
-First competition - AJP Turkey 8 October
+\nFirst competition - AJP Turkey 8 October
